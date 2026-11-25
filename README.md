@@ -1,0 +1,2 @@
+# tekhnologiya-montazha-saydinga
+af5582ae5f9a4de08cc6de9f5df766bd
